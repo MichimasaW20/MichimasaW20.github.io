@@ -1,1 +1,1 @@
-# MichimasaW20.github.io
+# [geminipages.blogspot.com](https://geminipages.blogspot.com/)
